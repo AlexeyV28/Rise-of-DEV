@@ -1,12 +1,15 @@
 # Rise-of-DEV
 
-##First part
+## First part
+
 fdsfdsfsfsdfsdfsfsdfsdfsdfsfs
 
-##Second part
+## Second part
+
 dadsdasdasdadadsadadaddsadada
 
-###Mini part
+### Mini part
+
 dsdfndknfkndfknfkdskfsnfnskdnfksdnfksdnfksn
 fdsfsfdsfsfsdfsdfs
 
