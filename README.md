@@ -1,3 +1,3 @@
-# NEW README
+# HI PEOPLE!!!!!!
 
-HELLO BABY IT ME!!!!!!!!!!!!!!!!!!!!!
+Try to find your path dude!
