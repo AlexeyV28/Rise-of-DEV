@@ -1,3 +1,3 @@
-# NEW README
+#Hello dudes!!!!!
 
-HELLO BABY IT ME!!!!!!!!!!!!!!!!!!!!!
+Your time is know!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
